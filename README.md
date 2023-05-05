@@ -1,16 +1,13 @@
-### Hi there 👋
+###  hi dudes 🩹
+Meu nome é Camila mas pode me chamar de KUGA
+- estou estudando no Alura
+- eu gosto de gatos
+- amo dormir
+- eu passo meu tempo livre jogando
+- Nick do roblox para interessados: Kyou77419
+- não sei o que colocar aqui brah
+- - então ☑️ 🆘 🆘 🆘
 
-<!--
-**Kuga77666/kuga77666** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://media.tenor.com/dj4PlkGUBtQAAAAi/danganronpa.gif)
